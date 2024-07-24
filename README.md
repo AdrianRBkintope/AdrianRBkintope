@@ -4,7 +4,8 @@
 - 💞️ I’m looking to collaborate on 
 - 📫 How to reach me texting me
 - 😄 Pronouns: me
-- ⚡ Fun fact: Messi calvo 
+- ⚡ Fun fact: Messi calvo
+-[tenor Messi calvo] [https://tenor.com/boFzE.gif]
 
 <!---
 AdrianRBkintope/AdrianRBkintope is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
